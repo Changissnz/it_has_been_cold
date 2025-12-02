@@ -42,3 +42,9 @@ learn how not to deny what a setup really is.
 ~ Shame and Obedience 
 
 <img width="1067" height="948" alt="Screenshot 2025-12-02 155023" src="https://github.com/user-attachments/assets/847bbffc-6b85-4673-ba1d-7318f2f5f233" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Hmmm... it's debatable. A populist's favorite color is red. Well...speak all you want of the Devil because in a Cold War, you're getting censored.  
+
+<img width="1085" height="653" alt="Screenshot 2025-12-02 155422" src="https://github.com/user-attachments/assets/64874a64-3e2f-485e-b6ef-6d3a7d2393f9" />
