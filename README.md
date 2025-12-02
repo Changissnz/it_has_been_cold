@@ -10,3 +10,7 @@ Forever zero percent battery. Three possibilities. Old device. Defective battery
 It's just a house, right? No blood, no family.  
 
 <img width="1902" height="922" alt="Screenshot 2025-12-02 150837" src="https://github.com/user-attachments/assets/08ce1c81-f652-4e99-9e36-27aa06a62472" />  
+
+Even Google says the leaks will keep on coming, for the truth or not. And Google got hit with Western antitrust.  
+
+<img width="1143" height="629" alt="Screenshot 2025-12-02 151608" src="https://github.com/user-attachments/assets/878169c1-8150-49a0-9aff-1f3172852132" />
