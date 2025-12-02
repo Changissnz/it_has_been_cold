@@ -14,3 +14,7 @@ It's just a house, right? No blood, no family.
 Even Google says the leaks will keep on coming, for the truth or not. And Google got hit with Western antitrust.  
 
 <img width="1143" height="629" alt="Screenshot 2025-12-02 151608" src="https://github.com/user-attachments/assets/878169c1-8150-49a0-9aff-1f3172852132" />
+
+I hear homosexualities are also the best teachers of cryptography because they were historically forced to lie, hide, and frame people to survive persecution.  
+
+<img width="1083" height="954" alt="Screenshot 2025-12-02 152818" src="https://github.com/user-attachments/assets/6eb7140f-4bcd-48e6-a4d6-cdf1141124df" />
