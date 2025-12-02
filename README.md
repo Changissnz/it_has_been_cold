@@ -36,3 +36,9 @@ learn xenophobia, propaganda, and populism from. Image @ https://worldview.strat
 <img width="1038" height="712" alt="Screenshot 2025-12-02 153302" src="https://github.com/user-attachments/assets/f48a7d1e-ddf4-4c89-bbba-2138ad620c81" />
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Here is what Google says about national populist trends. Bring on more of the populist trends, I'd say! Red State. Red Blood. Every time... and people never 
+learn how not to deny what a setup really is. 
+~ Shame and Obedience 
+
+<img width="1067" height="948" alt="Screenshot 2025-12-02 155023" src="https://github.com/user-attachments/assets/847bbffc-6b85-4673-ba1d-7318f2f5f233" />
