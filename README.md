@@ -19,3 +19,8 @@ I hear homosexuals are also the best teachers of cryptography because they were 
 But I guess that's just a rumor.  
 
 <img width="1083" height="954" alt="Screenshot 2025-12-02 152818" src="https://github.com/user-attachments/assets/6eb7140f-4bcd-48e6-a4d6-cdf1141124df" />
+
+Nasty threesome here. They're ok when you're with each of them alone, but put them together and it's a ticking timebomb or something. Best countries to 
+learn xenophobia, propaganda, and populism from. Image @ https://worldview.stratfor.com/article/germanys-trilateral-initiative-russia-and-poland 
+
+<img width="1038" height="712" alt="Screenshot 2025-12-02 153302" src="https://github.com/user-attachments/assets/f48a7d1e-ddf4-4c89-bbba-2138ad620c81" />
