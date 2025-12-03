@@ -48,3 +48,10 @@ learn how not to deny what a setup really is.
 Hmmm... it's debatable. A populist's favorite color is red. Well...speak all you want of the Devil because in a Cold War, you're getting censored.  
 
 <img width="1085" height="653" alt="Screenshot 2025-12-02 155422" src="https://github.com/user-attachments/assets/64874a64-3e2f-485e-b6ef-6d3a7d2393f9" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+"Hi, Richard. I'm Mister Unicorn Fairy Boy from San Francisco, here to offer you $175 if you complete these tasks for me! Don't miss out on this rare offer! 
+It's a once in a lifetime opportunity because it's people like me that hog all the IT money! Till next time." 
+
+<img width="1510" height="715" alt="image" src="https://github.com/user-attachments/assets/d1d58be5-9231-4f0c-8ca3-6a06a0e83d8a" />
