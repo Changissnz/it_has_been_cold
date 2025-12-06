@@ -87,6 +87,6 @@ They say this AI trend thing is a revolution! And you know what they say about r
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
 The man behind the necessarily multinational artificial intelligence revolution, Alexander Wang! From the seven seas to Shanghai to the American West Coast, this AI 
-revoluton would have never begun without him!  
+revolution would have never begun without him!  
 
 <img width="1656" height="750" alt="Screenshot 2025-12-06 131305" src="https://github.com/user-attachments/assets/638bb00e-32e6-4ba1-a877-1a6e6c42d74a" />
