@@ -83,3 +83,10 @@ it make?
 They say this AI trend thing is a revolution! And you know what they say about revolutions. Revolutions demand sacrifices, in many forms and for ultimate outcomes.  
 
 <img width="1362" height="692" alt="Screenshot 2025-12-06 125704" src="https://github.com/user-attachments/assets/70f97605-b07e-4ed1-90b5-6b42948a652c" />
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+The man behind the necessarily multinational artificial intelligence, Alexander Wang! From the seven seas to Shanghai to the American West Coast, this AI 
+revoluton would have never begun without him!  
+
+<img width="1656" height="750" alt="Screenshot 2025-12-06 131305" src="https://github.com/user-attachments/assets/638bb00e-32e6-4ba1-a877-1a6e6c42d74a" />
