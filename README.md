@@ -62,3 +62,11 @@ Money that everyone talks about, but only the rich own. Where else but round the
 but a rich person? 
 
 <img width="1210" height="792" alt="image" src="https://github.com/user-attachments/assets/367462e7-ca75-43dd-999a-deccd8d84d48" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Oooooo... The shadow proposition...the Euro Connection.  
+
+<img width="1472" height="697" alt="Screenshot 2025-12-06 123838" src="https://github.com/user-attachments/assets/f1575d26-0dfb-4863-9bcc-a797832f7f36" />  
+
+<img width="1515" height="705" alt="Screenshot 2025-12-06 123945" src="https://github.com/user-attachments/assets/66a8d809-bc7a-4858-b901-8f81eab089ec" />
