@@ -90,3 +90,11 @@ The man behind the necessarily multinational artificial intelligence revolution,
 revolution would have never begun without him!  
 
 <img width="1656" height="750" alt="Screenshot 2025-12-06 131305" src="https://github.com/user-attachments/assets/638bb00e-32e6-4ba1-a877-1a6e6c42d74a" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Housing and real estate market in the US has not been looking pretty. Maybe that's a symptom of the US officially having entered another Cold War. 
+
+<img width="1300" height="906" alt="Screenshot 2025-12-06 181722" src="https://github.com/user-attachments/assets/c8d3d49d-b456-461c-a6ed-678e5fb6919f" />  
+
+<img width="1307" height="935" alt="Screenshot 2025-12-06 181906" src="https://github.com/user-attachments/assets/159799c8-f258-41ff-a4d5-d772813f1c87" />
