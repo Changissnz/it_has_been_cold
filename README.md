@@ -77,3 +77,9 @@ Oh, really, dear? One hundred and ninety dollars just for me? Is that one hundre
 it make? 
 
 <img width="1505" height="682" alt="Screenshot 2025-12-06 124359" src="https://github.com/user-attachments/assets/3b28147f-8611-45d4-8caf-4ee716e00341" />
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+They say this AI trend thing is a revolution! And you know what they say about revolutions. Revolutions demand sacrifices, in many forms and for ultimate outcomes.  
+
+<img width="1362" height="692" alt="Screenshot 2025-12-06 125704" src="https://github.com/user-attachments/assets/70f97605-b07e-4ed1-90b5-6b42948a652c" />
