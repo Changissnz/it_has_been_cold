@@ -55,3 +55,10 @@ Hmmm... it's debatable. A populist's favorite color is red. Well...speak all you
 It's a once in a lifetime opportunity because it's people like me that hog all the IT money! Till next time." 
 
 <img width="1510" height="715" alt="image" src="https://github.com/user-attachments/assets/d1d58be5-9231-4f0c-8ca3-6a06a0e83d8a" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Money that everyone talks about, but only the rich own. Where else but round the world from bartering to gold to paper money to digital assets, and who else 
+but a rich person? 
+
+<img width="1210" height="792" alt="image" src="https://github.com/user-attachments/assets/367462e7-ca75-43dd-999a-deccd8d84d48" />
