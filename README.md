@@ -70,3 +70,10 @@ Oooooo... The shadow proposition...the Euro Connection.
 <img width="1472" height="697" alt="Screenshot 2025-12-06 123838" src="https://github.com/user-attachments/assets/f1575d26-0dfb-4863-9bcc-a797832f7f36" />  
 
 <img width="1515" height="705" alt="Screenshot 2025-12-06 123945" src="https://github.com/user-attachments/assets/66a8d809-bc7a-4858-b901-8f81eab089ec" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Oh, really, dear? One hundred and ninety dollars just for me? Is that one hundred and ninety dollars in American or Chinese terms, and what difference does 
+it make? 
+
+<img width="1505" height="682" alt="Screenshot 2025-12-06 124359" src="https://github.com/user-attachments/assets/3b28147f-8611-45d4-8caf-4ee716e00341" />
