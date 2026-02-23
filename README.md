@@ -105,3 +105,9 @@ Housing and real estate market in the US has not been looking pretty. Maybe that
 
 <img width="1912" height="925" alt="Screenshot 2026-02-21 093302" src="https://github.com/user-attachments/assets/f98103f9-743b-43b7-8009-e26f5a860cdb" />
 
+<img width="1305" height="949" alt="Screenshot 2026-02-23 112851" src="https://github.com/user-attachments/assets/bbb97bb4-b4c7-4c0b-a97b-ea5787fa18db" />
+
+<img width="1310" height="939" alt="Screenshot 2026-02-23 112949" src="https://github.com/user-attachments/assets/7aea7010-efe0-473f-a852-f40a0d9fd40e" />
+
+<img width="1317" height="944" alt="Screenshot 2026-02-23 113035" src="https://github.com/user-attachments/assets/2cd344a4-1800-4076-92ec-e60c4b25e30b" />
+
