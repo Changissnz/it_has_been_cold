@@ -113,7 +113,8 @@ Housing and real estate market in the US has not been looking pretty. Maybe that
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
-America's Southern economy. What a way to say two red strikes, another red strike and you're out.  
+America's Southern economy. What a way to say two red strikes, another red strike and you're out. They think it's sport. They think it's only fair... 
+for their gambles. 
 
 <img width="1200" height="1600" alt="IMG_20260616_184025_278" src="https://github.com/user-attachments/assets/0d27d981-ecd4-4d85-b1f6-4e1d6d616f9c" />
 <img width="1200" height="1600" alt="IMG_20260616_184008_732" src="https://github.com/user-attachments/assets/d498d98f-2a9a-482d-a68e-c6e9c301e2e9" />
