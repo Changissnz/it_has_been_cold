@@ -111,3 +111,10 @@ Housing and real estate market in the US has not been looking pretty. Maybe that
 
 <img width="1317" height="944" alt="Screenshot 2026-02-23 113035" src="https://github.com/user-attachments/assets/2cd344a4-1800-4076-92ec-e60c4b25e30b" />
 
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+America's Southern economy. What a way to say two red strikes, another red strike and you're out.  
+
+<img width="1200" height="1600" alt="IMG_20260616_184025_278" src="https://github.com/user-attachments/assets/0d27d981-ecd4-4d85-b1f6-4e1d6d616f9c" />
+<img width="1200" height="1600" alt="IMG_20260616_184008_732" src="https://github.com/user-attachments/assets/d498d98f-2a9a-482d-a68e-c6e9c301e2e9" />
+<img width="1200" height="1600" alt="IMG_20260616_184014_367" src="https://github.com/user-attachments/assets/44ff674f-7209-4300-82ac-f82f8210974f" />
