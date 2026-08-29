@@ -3,6 +3,8 @@
 "No friendship or community since it's cold. And it has been cold. No one is a friend. Someone is an enemy." 
 ~ General Makarov 
 
+"People asked for this. Then people should die for that." ~ General Shepherd 
+
 -----------------------------------------------------------------------------------------------------------------------------------------------------------
 
 It's been cold, another cold detail. 
