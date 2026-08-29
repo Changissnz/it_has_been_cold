@@ -125,3 +125,9 @@ for their gambles.
 Stereotypical Hispanic Republican with a boat. If he swaps out his American flag for a Mexican or Brazilian one, no one is going to lose a friend. 
 
 <img width="1311" height="922" alt="Screenshot 2026-08-28 215252" src="https://github.com/user-attachments/assets/e2a98bb4-a63b-4552-8a08-4789c2984d1f" />
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Narco? BTC Criminal? Gotta start looking somewhere if effort is made. 
+
+<img width="1306" height="940" alt="Screenshot 2026-08-28 215805" src="https://github.com/user-attachments/assets/e1e5ca79-329a-4403-bb99-37a8a156233b" />
