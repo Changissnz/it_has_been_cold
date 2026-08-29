@@ -119,3 +119,9 @@ for their gambles.
 <img width="1200" height="1600" alt="IMG_20260616_184025_278" src="https://github.com/user-attachments/assets/0d27d981-ecd4-4d85-b1f6-4e1d6d616f9c" />
 <img width="1200" height="1600" alt="IMG_20260616_184008_732" src="https://github.com/user-attachments/assets/d498d98f-2a9a-482d-a68e-c6e9c301e2e9" />
 <img width="1200" height="1600" alt="IMG_20260616_184014_367" src="https://github.com/user-attachments/assets/44ff674f-7209-4300-82ac-f82f8210974f" />
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+Stereotypical Hispanic Republican with a boat. If he swaps out his American flag for a Mexican or Brazilian one, no one is going to lose a friend. 
+
+<img width="1311" height="922" alt="Screenshot 2026-08-28 215252" src="https://github.com/user-attachments/assets/e2a98bb4-a63b-4552-8a08-4789c2984d1f" />
