@@ -1,7 +1,7 @@
 # It Has Been Cold
 
 "No friendship or community since it's cold. And it has been cold. No one is a friend. Someone is an enemy." 
-~ General Tsarnaev 
+~ General Makarov 
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------
 
