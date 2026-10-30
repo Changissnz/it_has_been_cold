@@ -139,3 +139,11 @@ Stereotypical Hispanic Republican with a boat. If he swaps out his American flag
 Narco? BTC Criminal? Gotta start looking somewhere if effort is made. 
 
 <img width="1306" height="940" alt="Screenshot 2026-08-28 215805" src="https://github.com/user-attachments/assets/e1e5ca79-329a-4403-bb99-37a8a156233b" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+Hey, look! It's another populist! 
+
+<img width="1915" height="918" alt="Screenshot 2026-10-30 124404" src="https://github.com/user-attachments/assets/f3442043-6e4f-4b67-83e0-19e713b5bcc6" />
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------
