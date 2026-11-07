@@ -147,3 +147,8 @@ Hey, look! It's another populist!
 <img width="1915" height="918" alt="Screenshot 2026-10-30 124404" src="https://github.com/user-attachments/assets/f3442043-6e4f-4b67-83e0-19e713b5bcc6" />
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+The Google Maps platform hasn't been updated in a while. There was/is a "cat crossing" sign they put up in front of the house. This house is right 
+behind the house of the stereotypical Hispanic Republican with a boat. Apparently, they own cats instead of a boat. 
+
+<img width="1371" height="917" alt="Screenshot 2026-11-07 085514" src="https://github.com/user-attachments/assets/e08cad70-21e2-430d-b421-9410c1fc66a7" />
