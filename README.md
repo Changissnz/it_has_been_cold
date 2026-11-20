@@ -155,6 +155,6 @@ behind the house of the stereotypical Hispanic Republican with a boat. Apparentl
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-Another rich crazy Asian immigrant success story. Relocated < 5 years. 
+Another rich crazy Asian immigrant success story. Relocated here less than 5 years ago. 
 
 <img width="1380" height="782" alt="Screenshot 2026-11-20 115139" src="https://github.com/user-attachments/assets/79628b86-777a-4c28-91ce-3a1c376efd49" />
