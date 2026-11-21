@@ -158,3 +158,11 @@ behind the house of the stereotypical Hispanic Republican with a boat. Apparentl
 Another rich crazy Asian immigrant success story. Relocated here less than 5 years ago. 
 
 <img width="1380" height="782" alt="Screenshot 2026-11-20 115139" src="https://github.com/user-attachments/assets/79628b86-777a-4c28-91ce-3a1c376efd49" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+The business is called Stockbarger Glass. Stock.Barger.Glass.
+
+<img width="1383" height="761" alt="Screenshot 2026-11-21 125317" src="https://github.com/user-attachments/assets/416332e6-5355-4281-981e-3f0a9c917fc9" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------
